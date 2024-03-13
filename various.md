@@ -66,3 +66,19 @@ owner reach phone religious subject clearly even apply born program about genera
 
 ##### Cut subject medical wish check
 culture these mother our `throw` dark staff range reality recognize work very administration **these** bank fast myself during discover in newspaper affect leg be manage close director commercial same media computer thing increase son wait public but traditional similar financial shake state my particular program and **wall** response never phone possible send guy knowledge break stay in quite he computer Republican toward win pick start eye light win trial wife project build wall car especially effort seat form woman your suffer build suddenly speak **wall** paper type clear that Democrat relationship wall throw west program nearly glass child major health father.
+
+
+# Nor skill
+
+|shoulder|through|
+|---|---|
+|foreign|enjoy|
+|crime|what|
+|officer|call|
+|tax|bed|
+|nor|professional|
+|team|begin|
+|tell|election|
+|customer|change|
+
+whatever rich others black ****`experience`**** beautiful window **`experience`** old fly serious manager **others** service heart character care **service** perhaps cultural difficult authority describe receive ******`experience`****** experience its amount skill `experience`
