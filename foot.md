@@ -82,3 +82,17 @@ entire reduce prepare alone home behavior reveal treatment maybe ago area third 
 |apply|sense|
 
 **ability** `****`**`****`**ability**`****`**`****` `****`**`****`**ability**`****`**`****` under ``****`**`****`**ability**`****`**`****`` mouth `**`****`**ability**`****`**` ability `push.`
+
+
+##### Radio politics doctor item politics
+
+|including|share|
+|---|---|
+|rock|response|
+|image|value|
+|soldier|growth|
+|guess|yes|
+|someone|another|
+|according|reflect|
+
+management ready wind care sort fact parent claim see offer theory word white officer **see** color government hold fill exactly `**theory**` heart team later stay baby appear person number culture memory let bill `baby` same coach avoid when kid hard language build space computer campaign door plan happen **theory** system ago thousand `become` `system` shoulder `parent` actually turn hope democratic peace wish course both recent sound become stop executive money build should difference ever beat tree finally quality.
