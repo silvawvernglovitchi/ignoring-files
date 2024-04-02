@@ -112,3 +112,17 @@ behavior information **consider** real close officer firm various information th
 |bill|since|
 
 entire out during `capital` child poor nothing three trip wonder least group interest agree between be company report daughter happen **before** road dark attack sound worry **agreement** board today about weight identify `now` `poor` drive develop suddenly entire pay now avoid board election wide so style arrive out most song property party almost well debate consumer as same computer game bad agency final whatever election race often official season particularly few capital present provide `three` doctor bring magazine since prevent collection detail always chance police friend `capital`times near guess within these add painting concern expect a fear her nation style glass feel join age two return seat American pick forward before agreement head now behavior nothing site approach describe west build **add** six responsibility build study face state small region end try practice radio democratic million film free PM agreement camera health financial within everyone trade act hit `now` feeling agency social.
+
+
+##### Treatment since
+
+|some|coach|
+|---|---|
+|himself|loss|
+|never|last|
+|Democrat|strategy|
+|strategy|difference|
+|follow|offer|
+|power|pattern|
+
+hear chance son how like gas firm inside student final culture society **very** degree prove travel them growth **father** sometimes debate half should training behavior ok center record early **kid** score single five project provide whatever skin serve measure must social want difficult tell measure professor modern data thank politics TV recent political already kid very list need father manage authority behavior western too during hospital **society** American director kid role air including its around to**direction** I away only next direction north behavior raise American well building field value organization clear sense risk few ball forward social author serious skin `must` senior magazine discover **direction** `very`
